@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+
 **thedhk/thedhk**
 
 Consecutive progression as though bees fly thousands kilometers to support their species, 
@@ -21,4 +21,3 @@ I usually say it is a belief of myself that I can do whatever I say, whatever I 
 This belief came from experience that I have it in my mind, I never fail, I always success as best as I can.
 We can predict future precisely it could not have a bit of differences my expect and real. 
 Then we can consider as the future is already existing, futhermore, we can also be a prophet of yourself.
--->
