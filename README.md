@@ -1,6 +1,3 @@
-### Hi there 👋
-
-
 **thedhk/thedhk**
 
 Consecutive progression as though bees fly thousands kilometers to support their species, 
